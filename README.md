@@ -8,3 +8,4 @@ extraction a choude		3h
 extrazction a friod		3h
 <img width="241" height="41" alt="image" src="https://github.com/user-attachments/assets/ed025419-3e1e-4afa-9be3-c25cceade56d" />
 
+https://youtu.be/zVSCOFwRQ-M
